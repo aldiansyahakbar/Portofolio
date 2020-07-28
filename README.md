@@ -1,2 +1,0 @@
-# ALDIANSYAH AKBAR
-My Portofolio
